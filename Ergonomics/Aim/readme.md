@@ -1,0 +1,1 @@
+- [Aim Mechanics No One Else Talks About](https://youtu.be/EqeDWH4kcME)
