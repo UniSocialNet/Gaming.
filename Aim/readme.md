@@ -1,2 +1,3 @@
 - [The real reason your aim is still terrible](https://youtu.be/b61zro5bKKY)
-- 
+- [minigod - Killing Aim Myths & Learning How To Aim Like Demon1 | ddk podcast #28](https://youtu.be/7VqsYmXvX8g)
+- [Aim Mechanics No One Else Talks About](https://youtu.be/EqeDWH4kcME)
