@@ -1,2 +1,1 @@
 - [Finalmouse just owned everyone. - UltralightX Review](https://youtu.be/CafNK6efFfA)
-- [How is THIS a Gaming Mouse?](https://youtu.be/Sbtgc6mi44M)
